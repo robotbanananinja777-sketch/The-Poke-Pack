@@ -1,2 +1,1 @@
-Poke all Toads themed Balatro Mod
-Made by using Joker Forge
+Poke all Toads themed Balatro Mod made by using Joker Forge
